@@ -7,7 +7,7 @@
 
 - Programa especializado: Ciencia de los dato **Universidad Johns Hopkins**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: fcristopher29@gmail.com</h3>
 <p align="left">
 </p>
 
